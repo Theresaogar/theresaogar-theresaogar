@@ -67,4 +67,4 @@ To secure a SOC Analyst role where I can contribute to threat detection, inciden
 
 ## 📫 Let’s Connect
 
-- LinkedIn: (add your link here)
+- LinkedIn: (https://www.linkedin.com/in/theresa-ogar)
